@@ -1,0 +1,1 @@
+ainda nao participei muito ativamente do curso
